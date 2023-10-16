@@ -1,0 +1,1 @@
+# udamy_static_prjcts
